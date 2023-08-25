@@ -1,1 +1,1 @@
-My name is Cynthia and this was a long friday
+My name is Cynthia and This was a long friday
